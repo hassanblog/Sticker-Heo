@@ -23,6 +23,7 @@
 [小康博客](https://www.antmoe.com/)
 [林羽凡](https://www.linyufan.com/)
 [2BROEAR](https://blog.2broear.com/)
+[Hassan](https://hassanwong.top/)
 
 ## 快速上手
 
